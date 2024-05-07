@@ -1,6 +1,6 @@
 # Hi I’m m
 
-That's it m pronounced /ɛm/ like Judy Dench, but not as cool
+That's it... m. Pronounced /ɛm/ like Judy Dench, but not as cool
 
 <!-- 
 
